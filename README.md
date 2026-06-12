@@ -1,0 +1,1 @@
+# Sok_Vanika_Ghana_Coding_Sample
